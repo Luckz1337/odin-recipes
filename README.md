@@ -1,8 +1,7 @@
-Hi Folks, 
+Hi, 
 
 
 I just try to get rid of the unknowledge. 
 
 
-
-See you then!
+Hope to see you then!
